@@ -1,4 +1,4 @@
-### Boas vindas ao meu perfil 💙
+### Boas vindas ao meu perfil 🖤
 
 Meu nome é Felipe Rafael
 
@@ -11,5 +11,5 @@ Meu nome é Felipe Rafael
 00001105354039sp@al.educacao.sp.gov.br
 
 @FelipeRafaelsccp1910
-![](https://media1.tenor.com/m/Y53liCxOcOcAAAAC/var-corinthians.gif)
+![](https://media1.tenor.com/m/MCBkr6dWLkUAAAAC/corinthians-rodrigo-garro.gif)
 
